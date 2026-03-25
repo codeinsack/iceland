@@ -48,7 +48,7 @@
 ![img_16.png](img_16.png)
 * _**Sleepover**_
 
-## 29.08.2026 | South Coast
+## 30.08.2026 | South Coast
 
 #### From Hamar to Seljalandsfoss (00:24)
 ![img_17.png](img_17.png)
