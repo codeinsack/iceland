@@ -123,3 +123,71 @@
 #### From Borgarfjarðarhöfn to Eiðar (00:52)
 ![img_36.png](img_36.png)
 * _**Sleepover**_
+
+## 01.09.2026 | Myvatn Area
+
+#### From Eiðar to Dettifoss (02:15)
+![img_37.png](img_37.png)
+* _**Dettifoss**_
+
+#### From Dettifoss to Krafla (00:43)
+![img_38.png](img_38.png)
+* _**Krafla**_
+
+#### From Krafla to Leirhnjukur (00:02)
+![img_39.png](img_39.png)
+![img_40.png](img_40.png)
+* _**Leirhnjukur**_
+
+#### From Leirhnjukur to Námafjall (00:09)
+![img_41.png](img_41.png)
+* _**Hverir**_
+
+#### From Hverir to Grjótagjá (00:07)
+![img_42.png](img_42.png)
+* _**Grjótagjá**_
+
+#### From Grjótagjá to Hverfjall (00:11)
+![img_43.png](img_43.png)
+* _**Hverfjall**_
+
+#### From Grjótagjá to Dimmuborgir (00:08)
+![img_44.png](img_44.png)
+* _**Kirkjuhringur trail**_
+* _**Lava field of Dimmuborgir**_
+* _**Kirkja – lava cave**_
+
+#### From Dimmuborgir to Skútustaðir (00:12)
+![img_45.png](img_45.png)
+* _**Lake Myvatn (the mosquito lake)**_
+
+#### From Lake Myvatn to Laxhús (00:43)
+![img_49.png](img_49.png)
+* _**Sleepover**_
+
+## 02.09.2026 | Whales, Godafoss & Akureyri
+
+#### From Laxhús to Húsavík (00:09)
+![img_50.png](img_50.png)
+* _**Húsavík: Whale Watching Tour (350 zl)**_
+
+#### From Húsavík to Godafoss (00:37)
+![img_51.png](img_51.png)
+* _**Godafoss**_
+
+#### From Godafoss to Svalbarðseyri (00:34)
+![img_52.png](img_52.png)
+* _**Quirky art gallery**_
+* _**Orange lighthouse**_
+
+#### From Svalbarðseyri to Jólahúsið (Christmas House) (00:21)
+![img_53.png](img_53.png)
+* _**Jólahúsið (Christmas House)**
+
+#### From Christmas House to Forest Lagoon (00:11)
+![img_54.png](img_54.png)
+* _**Forest Lagoon (300 zl)**
+
+#### From Forest Lagoon to Akureyri (00:04)
+![img_55.png](img_55.png)
+* _**Sleepover**
