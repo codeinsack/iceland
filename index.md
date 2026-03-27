@@ -225,3 +225,37 @@
 #### From Víðimýrarkirkja to Húnavellir Guesthouse (00:40)
 ![img_63.png](img_63.png)
 * _**Sleepover**_
+
+## 04.09.2026 | North Coast to Snaefellsnes
+
+#### From Húnavellir Guesthouse to Þingeyraklausturskirkja Church (00:19)
+![img_64.png](img_64.png)
+* _**Þingeyraklausturskirkja Church**_
+
+#### From Þingeyraklausturskirkja Church to Borgarvirki (00:32)
+![img_66.png](img_66.png)
+* _**Borgarvirki**_
+
+#### From Borgarvirki to Hvitserkur (00:22)
+![img_67.png](img_67.png)
+* _**Hvitserkur**_
+
+#### From Hvitserkur to Kolugljúfur Canyon (00:39)
+![img_68.png](img_68.png)
+* _**Kolugljúfur Canyon**_
+
+#### From Kolugljúfur Canyon to Eiriksstadir – Viking Longhouse (01:21)
+![img_69.png](img_69.png)
+* _**Eiriksstadir – Viking Longhouse (90 zl)**_
+
+#### From Viking Longhouse to Súgandisey Island Lighthouse (01:27)
+![img_70.png](img_70.png)
+* _**Súgandisey Island Lighthouse**_
+
+#### From Súgandisey Island Lighthouse to Berserkjahraun lava field (00:21)
+![img_71.png](img_71.png)
+* _**Berserkjahraun lava field**_
+
+#### From Berserkjahraun lava field to Kirkjufell Guesthouse (00:16)
+![img_72.png](img_72.png)
+* _**Sleepover**_
