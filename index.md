@@ -182,12 +182,46 @@
 
 #### From Svalbarðseyri to Jólahúsið (Christmas House) (00:21)
 ![img_53.png](img_53.png)
-* _**Jólahúsið (Christmas House)**
+* _**Jólahúsið (Christmas House)**_
 
 #### From Christmas House to Forest Lagoon (00:11)
 ![img_54.png](img_54.png)
-* _**Forest Lagoon (300 zl)**
+* _**Forest Lagoon (300 zl)**_
 
 #### From Forest Lagoon to Akureyri (00:04)
 ![img_55.png](img_55.png)
-* _**Sleepover**
+* _**Sleepover**_
+
+## 03.09.2026 | Tröllaskagi Peninsula
+
+#### From Akureyri to Siglufjörður (01:17)
+![img_56.png](img_56.png)
+* _**a nice little town with an extremely picturesque harbor area**_
+
+#### From Siglufjörður to Sauðanesviti (00:08)
+![img_57.png](img_57.png)
+* _**Trollaskagi Lighthouse**_
+
+#### From Sauðanesviti to Hofsos (00:51)
+![img_58.png](img_58.png)
+* _**Hofsos swimming pool (50 zl)**_
+
+#### From Hofsos to Grafarkirkja (00:04)
+![img_59.png](img_59.png)
+* _**Grafarkirkja**_
+
+#### From Grafarkirkja to Glaumbær Turf Farm & Museum (00:37)
+![img_60.png](img_60.png)
+* _**Glaumbær Turf Farm & Museum (65 zl)**_
+
+#### From Glaumbær Turf Farm & Museum to Reykjafoss (00:16)
+![img_61.png](img_61.png)
+* _**Reykjafoss**_
+
+#### From Reykjafoss to Víðimýrarkirkja (00:10)
+![img_62.png](img_62.png)
+* _**Víðimýrarkirkja**_
+
+#### From Víðimýrarkirkja to Húnavellir Guesthouse (00:40)
+![img_63.png](img_63.png)
+* _**Sleepover**_
