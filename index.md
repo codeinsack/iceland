@@ -320,3 +320,13 @@
 #### From Gerðuberg Cliffs to Borgarnes (00:40)
 ![img_88.png](img_88.png)
 * _**Oversleep**_
+
+## 06.09.2026 | Reykjavik
+
+#### From Borgarnes to Reykjavik: Sky Lagoon (01:12)
+![img_89.png](img_89.png)
+* _**Reykjavik: Sky Lagoon (406 zl)**_
+
+#### From Sky Lagoon to Keflavík International Airport (00:45)
+![img_90.png](img_90.png)
+* _**Keflavík International Airport**_
